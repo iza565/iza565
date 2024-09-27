@@ -13,4 +13,4 @@ izadora.schneider@escola.pr.gov.br
 @izaaaa_gabriela
 
 
-![](https://tenor.com/pt-BR/view/emojilaugh-emoji-laughing-gif-22496814)
+![](https://media1.tenor.com/m/wD9xdVo2QUgAAAAC/for-you-girl.gif)
